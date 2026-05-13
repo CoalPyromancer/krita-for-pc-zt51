@@ -1,4 +1,4 @@
-# 
+# Krita for PC | Krita for Windows secure Plugin: 3D-editing & AI-enhanced-tools offers the most advanced Krita for PC | Krita for Windows plugin, with 3D-editing and
 
 
 
